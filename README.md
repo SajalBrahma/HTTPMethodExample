@@ -1,0 +1,5 @@
+![1](https://github.com/SajalBrahma/HTTPMethodExample/assets/100282172/59d3b418-2ac5-48aa-bf0d-792cf111fd16)
+![2](https://github.com/SajalBrahma/HTTPMethodExample/assets/100282172/1db8a1c1-8e3a-47ba-a378-015b1d672c1e)
+![3](https://github.com/SajalBrahma/HTTPMethodExample/assets/100282172/a20b9695-6110-4c5b-b00c-0abe025663bc)
+![4](https://github.com/SajalBrahma/HTTPMethodExample/assets/100282172/902d5416-6866-43fe-8c21-4ef2548e259d)
+![5](https://github.com/SajalBrahma/HTTPMethodExample/assets/100282172/62bbb517-aa3c-498f-b72f-466a85d0dd2e)
